@@ -1,4 +1,4 @@
-
+Enhance GarageBand for macOS with GarageBand for macOS professional Preset: slow-motion & version-history, the #1 preset. Includes slow-motion and version-history for a smoother
 
 
 
